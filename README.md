@@ -1,0 +1,1 @@
+# Adobe-Photoshop-For-Windows-x32-x64
